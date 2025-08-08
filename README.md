@@ -71,8 +71,8 @@ Our goal is to **earn your trust through honest work**, not short-term profit.
 
 If you're planning to buy, sell, or explore property options in Rohini Sector 34, don't settle for guesswork. Choose a **local expert** who knows the legalities, pricing trends, and people in the area.
 
-Visit  [https://adobo.in/property-dealer-in-rohini-sector-34.html](https://adobo.in/property-dealer-in-rohini-sector-34.html)  
- Call us for a free consultation and site visit bookings.
+Visit: https://adobo.in/Rohini/rohini-sector-34-property-dealer.html
+Call us for a free consultation and site visit bookings.
 
 
 
